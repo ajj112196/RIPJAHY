@@ -1,1 +1,2 @@
 # RIPJAHY
+willing to learn
